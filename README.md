@@ -1,0 +1,2 @@
+# Explore_o_Poder_do_NotebookLM
+Explore_o_Poder_do_NotebookLM
